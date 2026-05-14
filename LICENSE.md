@@ -1,4 +1,4 @@
-#  
+#  Experience run for brainrots like never before with run for brainrots rare Scripts, the #1 Script. Includes fly and auto-collect for unbeatable
 
 
 
